@@ -8,7 +8,7 @@
 
 ###
 
-<p align="center">More 5500 Roblox Scripts Pastebin. Daily script updates for various Roblox Mode, all are free and safe. Our quality control assures an unbeatable experience!<br>Get Best Verified Script Pastebin Roblox on :<br><br><a href="https://script-pastebin.com">https://script-pastebin.com</a><br><br>Best alternative Pastebin for verified Script Pastebin:<br><br><a href="https://scriptpastebin.io">https://scriptpastebin.io</a></p>
+<p align="center">Get More Than 5500 Roblox Scripts Pastebin. Daily script updates for various Roblox Mode, all are free and safe. Our quality control assures an unbeatable experience!<br>Get Best Verified Script Pastebin Roblox on :<br><br><a href="https://script-pastebin.com">https://script-pastebin.com</a><br><br>Best alternative Pastebin for verified Script Pastebin:<br><br><a href="https://scriptpastebin.io">https://scriptpastebin.io</a></p>
 
 ###
 
